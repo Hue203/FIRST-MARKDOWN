@@ -9,3 +9,4 @@ i'm **28** years old
 i love to play _sport_
 
 > “Today, do what others won’t so tomorrow you can accomplish what others can’t.” — Simone Biles, Gymnast
+> My favorite song is [Co chang trai viet tren cay](https://www.youtube.com/watch?v=0VC6euBtKkk)
