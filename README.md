@@ -7,9 +7,9 @@ I used to study in Universituy of Economics HCMC, my major is Internatinal Bussi
 
 ## Hobby:
 
-i love to play _sport_ , I am playing tennis every Saturday, but it is doesn't mean _*i am playing good*_
+I love to play _sport_ , I am playing tennis every Saturday, but it is doesn't mean _*i am playing good*_
 I like to traveling that i can do diving and expore more new things.
-![https://img.traveltriangle.com/blog/wp-content/uploads/2019/03/Cover-for-Maldives-Scuba-Diving.jpg]
+![Diving in Maldives](https://img.traveltriangle.com/blog/wp-content/uploads/2019/03/Cover-for-Maldives-Scuba-Diving.jpg)
 
 ## Programing Experience:
 
